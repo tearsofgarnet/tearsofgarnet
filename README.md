@@ -1,5 +1,6 @@
                                   hihi im ana or tears and im really cool ok, nick names are fine
 						 i might be rude if i feel comfortable with u, so just tell me if ur not ok with it!
+				 		             i go to bed at 1 am sharp bc of time restrictions, sorry lol 
 										  uhh don't be scared to send fr also sign my ata pls
 														idk how these work
    
