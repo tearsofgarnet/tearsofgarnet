@@ -1,6 +1,6 @@
-                             hihi im tears or ana and i promise im cool, nick names are fine
-			      i might be rude if i feel comfortable with you, so just tell me if you're not ok with it!
-				     i go to bed at 10 pm on weekdays most of the time bc of restrictions, sorry lol  
+                                hihi im tears or ana and i promise im cool, nick names are fine
+			       i might be rude if i feel comfortable with you, so just tell me if you're not ok with it!
+				        i go to bed at 10 pm on weekdays most of the time bc of restrictions, sorry lol  
 							      i am a sharing kaito yume, i love doubles alr so int pls
 								        don't be scared to send fr also sign my ata ^^
 											      idk how these work
